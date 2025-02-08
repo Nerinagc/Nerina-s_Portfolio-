@@ -1,2 +1,2 @@
-# Nerina-s_Portfolio-
+# Nerina's Portfolio
 Marketing Analytics Portfolio
